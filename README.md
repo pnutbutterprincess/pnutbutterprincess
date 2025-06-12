@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @pnutbutterprincess
-- 👀 I’m interested in art, video games, cats, books
-- 🌱 I’m currently learning ... web development, anticolonialism, antiracism, Japanese
+- 👀 I’m interested in art, video games, cats, paleontology
+- 🌱 I’m currently learning ... geology, anticolonialism, Japanese
 - 💞️ I’m looking to collaborate on a new platform which integrates social media, entertainment, and lightweight communication
 - 📫 How to reach me ... pnutbutterprincess.art@gmail.com
 
